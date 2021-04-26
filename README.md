@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Dentag.github.io/rsschool-cv/cv
